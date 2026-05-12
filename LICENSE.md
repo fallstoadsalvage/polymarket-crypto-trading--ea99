@@ -1,4 +1,4 @@
-# 
+# Enhance your Polymarket trading with advanced Trading Bot for Polymarket - volatility-detection and multi-exchange-support, the #1 trading-bot. Includes volatility-detection and
 
 
 
